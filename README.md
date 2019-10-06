@@ -1,1 +1,0 @@
-# WSEI_podstawy_programowania
